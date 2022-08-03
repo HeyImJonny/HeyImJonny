@@ -1,0 +1,5 @@
+-  Meu nome é Jonny;
+-  Gosto de aprender e estudar variados assuntos;
+-  Tenho 14 anos;
+-  Tento evoluir cada dia mais em todos os sentidos;
+-  Apoio diversas minorias;
